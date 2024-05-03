@@ -1,0 +1,1 @@
+# Tpashiriqlar-1-10
